@@ -8,6 +8,8 @@ Följande recept ger 2 kg nyttig, fräsch och god Granola.
 * 250g solrosfrön
 * 150g pumpakärnor
 * 150g kokosflarn
+* 250g hackade cashewnötter
+* 100g hackade hasselnötter
 * 50g chiafrön
 * 5 msk ekologisk honung
 * 5 dl äppeljuice (typ färskpressad)
