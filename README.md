@@ -15,7 +15,7 @@ Följande recept ger 2 kg nyttig, fräsch och god Granola.
 * 1 msk kakao
 * 3 tsk salt
 
-## Tillagning
+## Tilllagning
 
 Sätt på ugn 175 grader.
 Blanda alla torra varor och fördela jämt på plåt med bakplåtspapper.
