@@ -4,7 +4,7 @@ Följande recept ger 2 kg nyttig, fräsch och god Granola.
 
 ## Ingredienser
 
-* 1000g fiberberikade havegryn
+* 1000g fiberberikat havegryn
 * 250g solrosfrön
 * 150g pumpakärnor
 * 150g kokosflarn
